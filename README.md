@@ -11,17 +11,6 @@
 
    thank you and have a great day, the script is still working but its not getting updated anytime soon unless if it would gain popularity 
    - Ez
-
-                                Might be coming back...
-   [This was never official]
-
-   
-
-
-
-
-
-
   __  __                      _       _ _   
  |  \/  | __ _  ___ ___ _ __ | | ___ (_) |_ 
  | |\/| |/ _` |/ __/ __| '_ \| |/ _ \| | __|
