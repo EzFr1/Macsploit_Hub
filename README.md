@@ -1,3 +1,1 @@
-# MACSPLOIT HUB IS COMING BACK :D 
-
-FUCK NORB & MOON WE BACK!!!!
+# Cotent deleted 404
